@@ -1,0 +1,1 @@
+# plataformastrologica1.0
